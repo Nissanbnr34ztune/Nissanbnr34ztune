@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nissanbnr34ztune
+- 👀 I’m interested in JDM ,programing ( python , java ) 
+- 🌱 I’m currently learning programing ( python)
+-                   
